@@ -1,2 +1,4 @@
 # 2026.4最新ChatGPT充值订阅教程(102元/月)：ChatGPT Plus购买、ChatGPT合租、ChatGPT代充值！
 
+
+<img width="400" height="402" alt="image" src="https://github.com/user-attachments/assets/1361cc44-b362-44cc-8f98-3c9c98693ff1" />
